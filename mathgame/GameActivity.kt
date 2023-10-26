@@ -1,3 +1,4 @@
+//This application is usefull
 package com.lkrd.mathgame
 
 import android.content.Intent
