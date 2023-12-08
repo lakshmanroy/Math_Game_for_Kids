@@ -45,3 +45,4 @@ Help your child excel in math with a fun and engaging learning experience. Downl
 Download on Google Play
 
 Join the Math Learning for Kids community today! 🌈 #MathLearning #EducationalApp #KidsEducation #MathIsFun
+Thanks for looking my app
