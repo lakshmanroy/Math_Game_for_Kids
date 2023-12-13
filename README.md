@@ -38,7 +38,6 @@ Welcome to the exciting world of Math Learning for Kids! 🚀
 📣 Get Started
 
 📥 Download the app on the Play Store.
-👶 Create a profile for your child.
 🧠 Start the math adventure!
 Help your child excel in math with a fun and engaging learning experience. Download now and watch them thrive! 🌟📚
 
