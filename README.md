@@ -14,7 +14,7 @@ Welcome to the exciting world of Math Learning for Kids!. 🚀
 🎯 Practice quizzes to reinforce learning.
 🤖 Engaging games to make math fun.
 🌟 Progress tracking for parents and teachers.
-💡 Built with educational experts' input.
+💡 Built with educational experts' input..
 🔢 Math Topics
 
 ➕ Addition
