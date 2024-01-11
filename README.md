@@ -12,7 +12,7 @@ Welcome to the exciting world of Math Learning for Kids!. 🚀
 
 🧁 Interactive lessons with colorful visuals.
 🎯 Practice quizzes to reinforce learning.
-🤖 Engaging games to make math fun.
+🤖 Engaging games to make math fun
 🌟 Progress tracking for parents and teachers.
 💡 Built with educational experts' input..
 🔢 Math Topics
