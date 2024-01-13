@@ -10,7 +10,7 @@ Welcome to the exciting world of Math Learning for Kids!. 🚀
 🎉 Now available on the Play Store.
 📚 Features
 
-🧁 Interactive lessons with colorful visuals.
+🧁 Interactive lessons with colorful visuals..
 🎯 Practice quizzes to reinforce learning.
 🤖 Engaging games to make math fun
 🌟 Progress tracking for parents and teachers.
