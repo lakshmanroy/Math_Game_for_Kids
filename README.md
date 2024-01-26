@@ -29,7 +29,7 @@ Welcome to the exciting world of Math Learning for Kids!. 🚀
 🎁 Reward system to motivate learning..
 📊 Progress Tracking
 
-📈 Keep an eye on your child's math journey..
+📈 Keep an eye on your child's math journey.
 🏆 Celebrate milestones and achievements.
 🔐 Privacy and Safety
 
