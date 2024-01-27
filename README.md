@@ -24,7 +24,7 @@ Welcome to the exciting world of Math Learning for Kids!. 🚀
 🧠 Problem Solving
 👶 Designed for Kids
 
-🎨 Child-friendly design and user interface..
+🎨 Child-friendly design and user interface.
 📢 Clear audio instructions.
 🎁 Reward system to motivate learning..
 📊 Progress Tracking
