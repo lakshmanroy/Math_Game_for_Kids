@@ -41,7 +41,7 @@ Welcome to the exciting world of Math Learning for Kids!. 🚀
 🧠 Start the math adventure!
 Help your child excel in math with a fun and engaging learning experience. Download now and watch them thrive! 🌟📚
 
-Download on Google Play
+Download on Google Play!
 
 Join the Math Learning for Kids community today! 🌈 #MathLearning #EducationalApp #KidsEducation #MathIsFun
 Thanks for looking my app.
